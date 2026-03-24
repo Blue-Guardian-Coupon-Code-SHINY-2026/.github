@@ -1,6 +1,6 @@
-# 🏆 Blue Guardian Coupon Code 2026 | Use Code: SHINY for 35% OFF
+# 🏆 Blue Guardian Coupon Code 2026 | Use Code: SHINY for 40% OFF
 
-> Use code **SHINY** at checkout to get 35% OFF Blue Guardian funded trading accounts.
+> Use code **SHINY** at checkout to get 40% OFF Blue Guardian funded trading accounts.
 > Best Blue Guardian promo codes, discount codes & deals for prop traders.
 
 ## 🎯 Coupon Code
@@ -8,7 +8,7 @@
 SHINY
 ```
 
-👉 [Click Here to Get 35% OFF Blue Guardian](https://blueguardian.com/?afmc=SHINY)
+👉 [Click Here to Get 40% OFF Blue Guardian](https://blueguardian.com/?afmc=SHINY)
 
 ## 💡 What is Blue Guardian?
 
@@ -33,7 +33,7 @@ Trusted by thousands of traders worldwide, Blue Guardian continues to grow as on
 1. Click the [discount link](https://blueguardian.com/?afmc=SHINY)
 2. Choose your account size
 3. Enter code **SHINY** at checkout
-4. Get **35% OFF** instantly
+4. Get **40% OFF** instantly
 5. Begin your funded trading journey
 
 [![Blue Guardian Discount](https://img.shields.io/badge/Coupon%20Code-SHINY-green)](https://blueguardian.com/?afmc=SHINY)
